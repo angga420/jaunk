@@ -1,0 +1,2 @@
+# jaunk
+Hidup manusia biasa
